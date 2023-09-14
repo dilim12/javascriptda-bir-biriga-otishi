@@ -1,0 +1,1 @@
+# javascriptda-bir-biriga-otishi
